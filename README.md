@@ -557,5 +557,7 @@ Over，都是大白话，不需要中翻中。Investing is simple, but not easy�
 
 #### 苹果用户赞赏专用
 
+![image](https://github.com/fengyumozhu/tsf/assets/6201828/84e0e6b6-3a7c-40dd-84c5-1ff3a4d64d6e)
+
 
 
